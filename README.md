@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BumbleAvivv
+- 👀 I’m interested in downloading stuff
+- 🌱 I’m currently learning coding
+- 📫 How to reach me my yt channel BumbleAvivv or twitch channel BumbleAvivv
